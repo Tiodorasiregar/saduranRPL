@@ -1,0 +1,3 @@
+Nama  : tio dora siregar
+Nim   : 1811500064
+Kel   :  TI6A
